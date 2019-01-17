@@ -1,0 +1,1 @@
+imthebestaround.com was created to aid in my San Francisco housing search back in 2013. I wanted to differentiate myself from other candidates while also providing a means for roommates to learn more about me.
